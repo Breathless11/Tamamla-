@@ -1,2 +1,0 @@
-# Tamamla-
-Görev Takip
